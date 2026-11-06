@@ -1,0 +1,35 @@
+# 6.4K views · 72 reactions  Coaching cấp độ tiềm thức #x3nangsuat #congdongtop1  
+
+- **Tác giả / Kênh:** CEO MINH X3 (https://www.facebook.com/ceominhx3)
+- **Loại nội dung:** Facebook Reel
+- **Link gốc:** https://www.facebook.com/reel/1381066383355401/
+- **ID bài viết/video:** `1381066383355401`
+- **Ngày đăng:** 2026-08-18
+- **Thời lượng:** 3 phút 47 giây
+
+---
+
+## 📌 1. NỘI DUNG BÀI VIẾT / CAPTION GỐC
+
+Coaching cấp độ tiềm thức 
+
+#x3nangsuat #congdongtop1
+
+---
+
+## 🎙️ 2. TOÀN BỘ TRANSCRIPT / LỜI THOẠI CHI TIẾT (100% NGUYÊN BẢN)
+
+Thì đàn ông rất hay bị mắc một cái bẫy, khi vợ mang bầu thì áp lực kiếm tiền Cái bẫy này nó rõ cái chỗ càng áp lực thì càng ít được Mình phải phân biệt được giữa cái thứ kết quả và cái thứ năng lực Năng lượng đặt ở bên kết quả, năng lượng rất là thật Năng lượng đó là năng lượng của tâm tham, năng lượng của tâm tham Sau bên trong là những nỗi sợ và sự thiếu thốn Nó có thể tăng được tiền nhé, nhưng nghèm sẽ hút cái cảnh thiếu thốn đấy ngay em đặt tâm vào năng lực thì nó lại khác nghe thôi là đã thấy thoải mái hơn rồi đúng không nên đăng năng lực mình lên, phục vụ khách hàng và coi những cái đống rác chính là cái thứ để mình sống rác ấy vui lắm, không có lẽ áp lực càng tập trung vào cái đúng chỗ nó lại càng ra, thế mới chết em không hiểu cái rủi ro như thế nào khi mà em nghĩ rằng năm sau tôi phải áp lực công ty này áp lực đấy nó sẽ giống như mình mang một cục phân mình đem đi khắp nơi lúc đấy Ngọc sẽ biết là chồng đang lo lắng cho gia đình vô thức Ngọc sẽ nói gì tuyển thức Ngọc sẽ nói là chẳng quan tâm đến mình nhưng mà rõ ràng hàng ngày đi làm vất vả vợ lại làm công chẳng quan tâm đến mình đúng không tuyển thức nó không hiểu logic như thế nó chỉ hiểu năng lượng nó phải em phải cho thôi khiến vợ trầm cảm sâu sinh và nó sẽ khiến con sinh nó hay trục trọng việc bé nó sẽ xé ra to Vì em tưởng là vợ em cần tiền Kiếm khúc bao nhiêu mà Là đủ cho lúc đấy Đã là năng lực thiếu thốn Nhìn cái hút cảnh thiếu thốn Em chứng kiến được bố em như vậy Rất nhiều nhà bị một cái tình trạng là Đối xử tốt với người dâu đấy Khi mà họ mang bọc Đưa đồ ăn đi Ăn đi cho con nó lớn Nhìn bên ngoài thì là chăm sóc mẹ đúng không Th ra l ch con Ch ng ph n Ng ph n bi kh Ti th h k c chuy g v n Kh quan t m l ch quan t con n Tâm đất đấy là ưu tiên con hơn vợ Em ngừng đi làm đi Không phải là để bảo vệ sức khỏe Mà lại để con Con không bị ảnh hưởng Trong quan điểm của anh con chỉ là một kẻ thứ ba Anh hình nhất trong tâm mình như thế Có én hay không có én không quan trọng Én rồi nó sẽ đi lấy chồng Con rời xa mình chỉ có em anh nói với anh đến lúc chết rồi anh bảo với chị Phương như vậy khi mà em đã được đẻ ra cái đầu tiên anh suy nghĩ là mẹ mình có đau không ưu tiên hai mới là con anh hỏi vợ xem có đau hay không chứ mệt không sợ gì không rồi mới hai vợ chồng mới quay dần đến ngón tay ngón chân vợ mới là khách hàng mình con chỉ là người ngoài nghe nó lao nghe nó khác biệt hoàn toàn với lại ông bố khác luôn em phải để ý từng cái tâm của mình cơ thế nào anh được đời như thế này người đàn ông nào hay gia đình nào mà coi vợ là một công cụ để con thì người gọi đấy lại ghét được con em đã bao giờ thấy mẹ ghét với con chưa ý thức thì yêu nhé tìm thức ghét ghét thì sao vì tiền thức chỉ là vì có mày người ta không được nhưng mà làm mẹ mà vẫn yêu con một góc vào đấy không thể thức có thể bảo là ghét con nên hay chứng con là khi tư duy của em hay mà chồng một phe còn kẹt mẹ con ngoan hay không nhìn rất vui rất là bà vì thế con đấy còn ngoan chị Phương mới hỏi anh là không hiểu sao em trước rồi em mắng em, em nhìn em luôn dễ thương chị Phương không lý giải được nhưng anh lý giải được, vì sao? vì anh ưu tiên chị Phương hơn là em nằm ngủ anh ôm chị Phương, em sang một bên không nằm giữa, hai vợ chồng ưu tiên đi chơi con này nhỉ, điện tức người vợ lúc đấy đã hiểu là người chồng này yêu thương tôi nhận được tình yêu thương, con trao lại tình yêu thương cho con thôi con lúc đấy là một món quà nên mục tiêu chẳng có gì thay đổi của em nữa đấy nhưng mà cái cách mình nghĩ về nó là cái đúng Càng nghĩ về tiền mỗi tháng đổ về bao nhiêu trung cấp Em sẽ mất tất Thật thiệt lẫn vợ lẫn con
+
+---
+
+## 💡 3. BÀI HỌC VÀ ĐÚC KẾT CỐT LÕI (VĂN - TƯ - TU)
+
+### 🔹 Văn (Chân lý & Nguyên lý cốt lõi)
+- Tư duy và bài học từ CEO Minh X3 chia sẻ trong nội dung trên.
+
+### 🔹 Tư (Nghịch lý & Quy luật chiều sâu)
+- Những rào cản, thói quen và tư duy sai lệch của số đông thường gặp.
+
+### 🔹 Tu (Hành động áp dụng dứt điểm)
+- Các bước thực thi chuyển hóa năng suất và hiệu quả công việc ngay lập tức.
